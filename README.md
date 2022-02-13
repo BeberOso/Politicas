@@ -1,0 +1,2 @@
+# Politicas
+Políticas de Privacidad
